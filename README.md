@@ -6,4 +6,6 @@ Citations Drive Link - https://drive.google.com/drive/u/0/folders/1KukkIle4BzDhd
 
 PPT LINK -https://www.canva.com/design/DAFLLzxiWFk/r1yTrp847LPpyogUczNYEA/view?utm_content=DAFLLzxiWFk&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink
 
-Synopsis Link - https://docs.google.com/document/d/1K-jJNwE8-d-l0fgV9l_nGw_EZiBtc9DV/edit
+Synopsis View Link - https://drive.google.com/file/d/12ZYCOfPElYNSE78arhQOai9kvItAwa42/view
+
+Synonpsis Edit Link - https://docs.google.com/document/d/12ZYCOfPElYNSE78arhQOai9kvItAwa42/edit
