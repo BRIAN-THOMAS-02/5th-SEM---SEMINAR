@@ -8,4 +8,4 @@ PPT LINK -https://www.canva.com/design/DAFLLzxiWFk/r1yTrp847LPpyogUczNYEA/view?u
 
 Synopsis View Link - [https://drive.google.com/file/d/12ZYCOfPElYNSE78arhQOai9kvItAwa42/view](https://drive.google.com/file/d/1oX1EzArduSCpFrj6DdC5yDkqgPIfbnvM/view)
 
-Synonpsis Edit Link - [https://docs.google.com/document/d/12ZYCOfPElYNSE78arhQOai9kvItAwa42/edit](https://docs.google.com/document/d/19x1JU7yuAF7573KtxpLowKS2gkKhxDyS/edit)
+Synonpsis Edit Link - https://docs.google.com/document/d/1V3YM85G6_tEuZfW-rp4y4FJPyA9ZUiy8bUbJ--f1JrU/edit
