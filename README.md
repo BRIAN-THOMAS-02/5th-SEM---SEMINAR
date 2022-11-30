@@ -12,3 +12,6 @@ Synonpsis Edit Link - https://docs.google.com/document/d/1V3YM85G6_tEuZfW-rp4y4F
 
 
 GDSC 15th PPT Link - https://www.canva.com/design/DAFRxQ07AIg/ZnCbI3KqFJGt25T_dpPYpw/view utm_content=DAFRxQ07AIg&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+
+
+AI/ML Induction Link - https://prezi.com/view/63BE75ykmvhaSWBiKwtm/
